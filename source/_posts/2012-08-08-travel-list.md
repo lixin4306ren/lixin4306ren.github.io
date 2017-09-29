@@ -96,6 +96,7 @@ http://bbs.8264.com/thread-321399-1-1.html
 
 11. 扎日神山转山
 http://bbs.8264.com/thread-5327385-1-1.html
+https://zhuanlan.zhihu.com/p/29685077
 
 12. 察瓦龙-古拉乡间怒江峡谷段
 察瓦龙沿怒江往北可到-处尼村
@@ -109,6 +110,13 @@ http://weibo.com/ttarticle/p/show?id=2309403979029001713309&mod=zwenzhang?commen
 
 14. 年保玉则徒步
 http://bbs.8264.com/thread-5381189-1-1.html
+
+15. 徒步博格达大环线穿越
+https://zhuanlan.zhihu.com/p/29789233
+
+16. 高黎贡山穿越  
+https://zhuanlan.zhihu.com/p/29549856
+
 
 ### 骑行
 1. 香格里拉大环线  
