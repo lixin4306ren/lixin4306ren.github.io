@@ -19,6 +19,7 @@ http://bbs.8264.com/forum.php?mod=viewthread&tid=1000432&page=13
 http://blog.sina.com.cn/s/blog_489dbdf60100lk2n.html  
 http://www.jinbifun.com/thread-2127301-1-1.html  
 <img src="http://image1.8264.com/forum/201210/27/013753cn11k24j11uiu4k1.jpg!t1w1500h1500x9m1" align=center />
+独龙江白马王河及白马拉卡山边境行，http://tieba.baidu.com/p/3264067122，中缅43号界碑
 
 2. 察察线徒步线路
 察察线徒步线路是沿着古老的茶马古道行走，起点是察瓦龙乡，终点是察隅县。虽然和著名的丙察察公路类似，但是这是一条崭新的穿越路线，和自驾游的丙察察还是有一定区别的。
@@ -91,6 +92,9 @@ http://bbs.8264.com/thread-321399-1-1.html
     http://www.doyouhike.net/forum/mountain/544636,0,0,1.html  
   * 喀喇昆仑山克勒青河谷，K2徒步，4座8000米  
   http://www.doyouhike.net/forum/backpacking/xibei/509324,0,0,0.html  
+  https://zhuanlan.zhihu.com/p/28464708
+  可以研究下沿克勒青河谷向北穿越到红其拉甫的路线
+
   * K2巴基斯坦侧徒步
   http://www.doyouhike.net/forum/photo/906332,0,0,0.html
 
