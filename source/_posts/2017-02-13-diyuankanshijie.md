@@ -6,7 +6,7 @@ category: 读书
 top:
 ---
 
-<img src="images/中国地缘结构图.jpg" align=center />
+![](/images/中国地缘结构图.jpg)
 
 
 <!-- more -->

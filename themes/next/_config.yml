@@ -2,6 +2,8 @@
 # Site Information Settings
 # ---------------------------------------------------------------
 
+
+
 # Put your favicon.ico into `hexo-site/source/` directory.
 #favicon: https://raw.githubusercontent.com/lixin4306ren/lixin4306ren.github.io/hexo/source/favicon.ico
 favicon: /source/favicon.ico
