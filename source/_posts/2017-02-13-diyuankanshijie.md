@@ -6,7 +6,7 @@ category: 读书
 top:
 ---
 
-<img src="https://wp81rq.dm2301.livefilestore.com/y3mPJS9EjTUvLLnE2gKplPntWA98fS_av32pPXoZNbTPqp1S0FbxEdHZYrDo0pGAZhNzhpUCmK273SwqW6V_8u8TwhyhnXVp7r5BGq4lu_UPy2Iv_bJAyyquCbhHZk-MJe0-Os9uW2JH_MsQbJ0OU2AiA5sPEoIrJ9a_JjvnQWeBMo?width=732&height=598&cropmode=none" align=center />
+<img src="images/中国地缘结构图.jpg" align=center />
 
 
 <!-- more -->
