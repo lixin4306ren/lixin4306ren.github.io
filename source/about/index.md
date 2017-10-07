@@ -20,5 +20,6 @@ comments: false
 2011年8月       [新疆骑行，独库公路+伊犁河谷](http://blog.sina.com.cn/s/blog_6e29ec500100xklp.html)，14天
 2017年6月       攀登太白山主峰拔仙台（海拔3767米），1天
 2017年8月       徒步白龙江峡谷，攀登华盖神山（海拔4200米），1天
+<iframe src="https://www.google.com/maps/d/embed?mid=1RPn9rfhkYzEC-qMcoVpdR5VubZg&hl=zh-CN" width="640" height="480"></iframe>
 2017年8月       扎尕那大峪沟穿越，3天
 
