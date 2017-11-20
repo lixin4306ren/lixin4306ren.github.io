@@ -80,6 +80,8 @@ http://bbs.8264.com/thread-2417493-1-1.html
   * 忠玉乡--金岭乡--边坝 http://www.doyouhike.net/forum/mountain/854871,0,0,1.html 583乡道
   * 一措再措  http://www.doyouhike.net/forum/mountain/917846,0,0,0.html  http://www.tibet-g.com/lvyou/201505/000002995.html  
   * 巴松错--鲁朗穿越  http://bbs.8264.com/thread-1958253-1-1.html  
+路线攻略帖：http://bbs.8264.com/thread-5446310-1-1.html
+
 
 10. 14座8000米山峰徒步  
 http://bbs.8264.com/thread-321399-1-1.html  
