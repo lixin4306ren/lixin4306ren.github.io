@@ -21,6 +21,7 @@ comments: false
 2017年6月       [攀登太白山主峰拔仙台（海拔3767米）](https://www.google.com/maps/d/viewer?mid=16aCW7I8J6e-aI-eC-c4HnDTckys&usp=sharing)，1天
 2017年8月       [徒步白龙江峡谷，攀登华盖神山（海拔4200米）](https://www.google.com/maps/d/viewer?mid=1RPn9rfhkYzEC-qMcoVpdR5VubZg&usp=sharing)，1天
 2017年8月       [扎尕那大峪沟穿越](https://drive.google.com/open?id=1KsT_8RFhGzpiQp8jEEl9Aa6KT4g&usp=sharing)，3天
+2018年7月	[波密达兴村-墨脱格当乡徒步穿越（翻越金珠拉垭口）](http://www.2bulu.com/track/track_detail.htm?trackId=sOzb3lrJqNA=)，4天
 
 # 近期计划
 ## 非常规丙察察徒步
