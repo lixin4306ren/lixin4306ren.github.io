@@ -22,7 +22,7 @@ comments: false
 2017年8月       [徒步白龙江峡谷，攀登华盖神山（海拔4200米）](https://www.google.com/maps/d/viewer?mid=1RPn9rfhkYzEC-qMcoVpdR5VubZg&usp=sharing)，1天
 2017年8月       [扎尕那大峪沟穿越](https://drive.google.com/open?id=1KsT_8RFhGzpiQp8jEEl9Aa6KT4g&usp=sharing)，3天
 2018年7月	[登封-将军殿-连天峰-玉皇沟没法走-折返少林寺下](http://www.2bulu.com/track/track_detail.htm?trackId=y/T80hoCPI8=)，2天，意外在山上无装备度过一夜
-2018年7月	[波密达兴村-墨脱格当乡徒步穿越（翻越金珠拉垭口，海拔4500）](http://www.2bulu.com/track/track_detail.htm?trackId=sOzb3lrJqNA=)，4天
+2018年7月	[波密达兴村-墨脱格当乡徒步穿越（翻越金珠拉垭口，海拔4500）](http://tieba.baidu.com/p/5839789551?pid=121450432912&cid=0#121450432912)，4天
 
 # 近期计划
 ## 非常规丙察察徒步
