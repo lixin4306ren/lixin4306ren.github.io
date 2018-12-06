@@ -26,7 +26,7 @@ comments: false
 2018年8月-11月	参加山鹰户外体系天河登协培训
 1. 户外爱好者二星培训  [广州第一峰天堂顶](http://www.2bulu.com/track/t-6840676.htm)，2天
 2. 户外领队一星培训  [广州从化老虎头五指山](http://www.2bulu.com/track/t-6461793.htm)，2天
-3. 户外领队一星实习  [南岭最高峰桂林猫儿山](http://www.2bulu.com/track/t-6826179.htm)，1天  
+3. 户外领队一星实习  [南岭最高峰桂林猫儿山](http://www.2bulu.com/track/t-6826179.htm)，1天
 2018年12月	[攀登苍山玉局峰（海拔4097米）](http://www.2bulu.com/track/t-6904851.htm)，1天
 
 # 近期计划
