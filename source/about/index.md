@@ -28,6 +28,11 @@ comments: false
   	户外领队一星培训  [广州从化老虎头五指山](http://www.2bulu.com/track/t-6461793.htm)，2天
   	户外领队一星实习  [南岭最高峰桂林猫儿山](http://www.2bulu.com/track/t-6826179.htm)，1天
 2018年12月	[攀登苍山玉局峰（海拔4097米）](http://www.2bulu.com/track/t-6904851.htm)，1天
+2019年2月-3月	船底岭拉练  
+	[船底岭 焦窝顶-阎罗头环线](http://www.2bulu.com/track/t-04HZUO4eWsk%25253D.htm)，2天
+	[船底岭 高嶂顶-牛头排环线](http://www.2bulu.com/track/t-pkw1H03vVRQ%25253D.htm)，2天
+	[船底岭 上斜-必木坪-水库](http://www.2bulu.com/track/t-vWkKa324Gu8%25253D.htm)，2天
+2019年3月	[加拉白垒-南迦巴瓦徒步 鲁朗——大峡谷穿越](http://www.2bulu.com/track/t-GQB3U0pJcKs%25253D.htm)
 
 # 近期计划
 ## 非常规丙察察徒步
