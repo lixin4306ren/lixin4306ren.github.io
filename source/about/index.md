@@ -24,10 +24,10 @@ comments: false
 2018年7月	[登封-将军殿-连天峰-玉皇沟没法走-折返少林寺下](http://www.2bulu.com/track/track_detail.htm?trackId=y/T80hoCPI8=)，2天，意外在山上无装备度过一夜
 2018年7月	[波密达兴村-墨脱格当乡徒步穿越（翻越金珠拉垭口，海拔4500）](http://tieba.baidu.com/p/5839789551?pid=121450432912&cid=0#121450432912)，4天
 2018年8月-11月	参加山鹰户外体系天河登协培训
-  	户外爱好者二星培训  [广州第一峰天堂顶](http://www.2bulu.com/track/t-6840676.htm)，2天
-  	户外领队一星培训  [广州从化老虎头五指山](http://www.2bulu.com/track/t-6461793.htm)，2天
-  	户外领队一星实习  [南岭最高峰桂林猫儿山](http://www.2bulu.com/track/t-6826179.htm)，1天
-2018年12月	[攀登苍山玉局峰（海拔4097米）](http://www.2bulu.com/track/t-6904851.htm)，1天
+  	户外爱好者二星培训  [广州第一峰天堂顶](http://www.2bulu.com/track/t-CNlK5MmDa1Q%25253D.htm)，2天
+  	户外领队一星培训  [广州从化老虎头五指山](http://www.2bulu.com/track/t-dz%25252FGg9SO%25252Fuo%25253D.htm)，2天
+  	户外领队一星实习  [南岭最高峰桂林猫儿山](http://www.2bulu.com/track/t-RBq4x7svcIw%25253D.htm)，1天
+2018年12月	[攀登苍山玉局峰（海拔4097米）](http://www.2bulu.com/track/t-C1Lk7Rhv23c%25253D.htm)，1天
 2019年2月-3月	船底岭拉练  
 	[船底岭 焦窝顶-阎罗头环线](http://www.2bulu.com/track/t-04HZUO4eWsk%25253D.htm)，2天
 	[船底岭 高嶂顶-牛头排环线](http://www.2bulu.com/track/t-pkw1H03vVRQ%25253D.htm)，2天
