@@ -32,7 +32,7 @@ comments: false
 	[船底岭 焦窝顶-阎罗头环线](http://www.2bulu.com/track/t-04HZUO4eWsk%25253D.htm)，2天
 	[船底岭 高嶂顶-牛头排环线](http://www.2bulu.com/track/t-pkw1H03vVRQ%25253D.htm)，2天
 	[船底岭 上斜-必木坪-水库](http://www.2bulu.com/track/t-vWkKa324Gu8%25253D.htm)，2天
-2019年3月	[加拉白垒-南迦巴瓦徒步 鲁朗——大峡谷穿越](http://www.2bulu.com/track/t-GQB3U0pJcKs%25253D.htm)
+2019年3月	[加拉白垒-南迦巴瓦徒步 鲁朗——大峡谷穿越](http://www.2bulu.com/track/t-GQB3U0pJcKs%25253D.htm)，4天
 
 # 近期计划
 ## 非常规丙察察徒步
